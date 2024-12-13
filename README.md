@@ -1,0 +1,2 @@
+# yomesha-website
+NEVER STOP LEARNING AND NEVER GIVEUP
